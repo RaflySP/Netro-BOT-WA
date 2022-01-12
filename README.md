@@ -1,2 +1,6 @@
-# SC-BOT-WA
-Subscribe Channel Hanbu FF
+# NETRO-BOT-WA
+Subcribe RaflyNotPro
+
+No Bug Chat Me on Discord
+
+RaflySP#2889
