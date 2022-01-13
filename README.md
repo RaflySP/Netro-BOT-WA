@@ -1,6 +1,6 @@
 # NETRO-BOT-WA
 Subcribe RaflyNotPro
 
-No Bug Chat Me on Discord
+Bug Fix Sendiri
 
 RaflySP#2889
